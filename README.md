@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Third year computer science student at Swansea University
+🔭 MSc (Hons) Computer Science Graduate
 
 
 ## 🌐 Socials:
