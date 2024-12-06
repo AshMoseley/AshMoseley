@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 MSc (Hons) Computer Science Graduate
+🔭 MSc Computer Science Graduate
 
 
 ## 🌐 Socials:
